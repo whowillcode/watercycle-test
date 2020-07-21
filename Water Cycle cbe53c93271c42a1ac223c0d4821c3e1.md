@@ -4,7 +4,6 @@
 
 The water cycle is movement of water (in various forms) above and below the surface of earth.
 
-[🤔What are various forms of water](Water%20Cycle%20cbe53c93271c42a1ac223c0d4821c3e1/What%20are%20various%20forms%20of%20water%203fb84d67f7624a1abdc6731dea73297a.md)
 
 The water evaporates from earth surface, because of the heat of the sun, then it goes up to the atmospheric layers. As you know the temperature of earth is low at high altitude, these water vaporous get condensed and form clouds. the video below explains it:-
 
