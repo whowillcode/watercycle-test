@@ -8,7 +8,7 @@ The water evaporates from earth surface, because of the heat of the sun, then it
 
 [https://www.youtube.com/watch?v=al-do-HGuIk](https://www.youtube.com/watch?v=al-do-HGuIk)
 
-After looking at the video, do answer the following question:
+After looking at the video, do answer the following questions:
 
 ---
 
