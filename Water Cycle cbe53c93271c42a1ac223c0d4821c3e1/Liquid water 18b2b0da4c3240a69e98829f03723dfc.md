@@ -1,0 +1,7 @@
+# Liquid water
+
+Incorrect Answer.
+
+Water present in *liquid water* form (in plants and on surface) evaporates as *water vapor* and rises into atmosphere. There it condenses to form clouds. The clouds then give out rain (*liquid water*) or snow & hail (*ice*) which falls back to earth. So all forms of water are present in water cycle
+
+[Water Cycle](../Water%20Cycle%20cbe53c93271c42a1ac223c0d4821c3e1.md)
